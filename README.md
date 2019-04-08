@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-Teeserted OÜ built the Hebrew Calendar & Dates app as a Commercial app. This SERVICE is provided by Teeserte OÜ and is intended for use as is.
+Teeserted OÜ built the Hebrew Calendar & Dates app as a Commercial app. This SERVICE is provided by Teeserted OÜ and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
